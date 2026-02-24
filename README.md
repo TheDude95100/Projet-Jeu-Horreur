@@ -23,6 +23,8 @@ Sprint (avec endurance)
 Se cacher
 Vie? (ptdr tu te fais one shot)
 Trouver des moyens de contrer les strums (du SEEEEEEEEL)
+Dialogue Manager (je l'ai déjà qq part)
+Voix style Animal Crossing (Mais genre grave)
 
 Pitch de base:
 S'enfuir de l'école de mort
